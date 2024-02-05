@@ -9,4 +9,4 @@ KEY HIGHLIGHTS:-
 
 3.It is focused on providing actionable insights for HR professionals or analysts to make informed decisions and strategic planning related to employee attrition and related factors by giving insights.
 
-https://drive.google.com/file/d/1XcStxkqBgnRNR3QU10N3tSRRPGdk4AfD/view?usp=share_link
+PDF file :-https://drive.google.com/file/d/1XcStxkqBgnRNR3QU10N3tSRRPGdk4AfD/view?usp=share_link
